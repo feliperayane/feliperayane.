@@ -4,4 +4,4 @@ Sou Felipe, e estou animado por estar aqui. Meu interesse principal é o desenvo
 Atenciosamente,
 
 Felipe
-![_](https://media1.tenor.com/m/I4I7HvcN6pgAAAAd/dog-oops.gif)
+![](https://media1.tenor.com/m/I4I7HvcN6pgAAAAd/dog-oops.gif)
